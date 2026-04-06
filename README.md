@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LULK071007MASNPRA0
+LULK071007MASNPRA0
